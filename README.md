@@ -1,4 +1,4 @@
-![25w](https://github.com/Tensionst/README/assets/170373513/30b882f6-80e7-4aa8-8de5-7fa0fa00ad81)
+![giphy](https://github.com/Tensionst/README/assets/170373513/4ccdaa84-2fe4-4e4e-a32f-03ba0d62e888)
 
 
 <h1 align="center">hi, im brooklyn</h1>
