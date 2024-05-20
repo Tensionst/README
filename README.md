@@ -1,4 +1,4 @@
-<h1 align="center">![giphy](https://github.com/Tensionst/README/assets/170373513/4ccdaa84-2fe4-4e4e-a32f-03ba0d62e888) ![giphy](https://github.com/Tensionst/README/assets/170373513/c24b1fe9-dc6a-4868-8cb6-98aa9c4a488b)
+![giphy](https://github.com/Tensionst/README/assets/170373513/4ccdaa84-2fe4-4e4e-a32f-03ba0d62e888) ![giphy](https://github.com/Tensionst/README/assets/170373513/c24b1fe9-dc6a-4868-8cb6-98aa9c4a488b)
 
 
 
