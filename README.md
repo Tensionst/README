@@ -1,3 +1,6 @@
+![200w](https://github.com/Tensionst/README/assets/170373513/30b882f6-80e7-4aa8-8de5-7fa0fa00ad81)
+
+
 <h1 align="center">hi, im brooklyn</h1>
 <h3 align="center">just another pony</h3>
 
